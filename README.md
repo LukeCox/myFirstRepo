@@ -1,1 +1,1 @@
-OOO Kill EM!
+2 CHAINZ!
